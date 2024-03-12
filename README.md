@@ -1,0 +1,1 @@
+# Funksiyani-chaqirish-funksiya-
